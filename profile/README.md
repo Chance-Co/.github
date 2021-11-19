@@ -1,3 +1,3 @@
-![logo](pictures/logo.png)
+![logo](pictures/chance co-logos.jpeg)
 
 Our slogen: build it!
